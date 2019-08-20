@@ -8,3 +8,9 @@ Host/Operator is a sound performance project that uses intuitive sound performan
 
 WHAT?
 The performative state is singular moment that you inhabit when performing that is abstracted from time and void of contextual response of the current external stimulus. It involves living in the moment allowing us the freedom to act without hesitation and with the absence of intrusion. The performative state is a feedback loop of performance/response inside the same moment and action.
+
+http://www.hostoperator.co.uk/#next
+
+https://www.youtube.com/channel/UCDXmxxv_zLogxTmtmW--KBg
+
+https://www.instagram.com/hostoperator/
