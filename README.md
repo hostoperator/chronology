@@ -16,3 +16,13 @@ http://www.hostoperator.co.uk/#next
 https://www.youtube.com/channel/UCDXmxxv_zLogxTmtmW--KBg
 
 https://www.instagram.com/hostoperator/
+
+The Authors of all content on this repository is Charles Gershom & Reverend Tate.
+
+********************************************************************************
+You may download/copy/share/remix any data on this repo. 
+Please attribute any such info to Host Operator - Charles Gershom & Reverend Tate
+We belive in zero boundries for the engagment of all things. You are not allowed 
+to artificially create barriers to access any of the data on this repository. 
+You ae not allowed to derive any monetary income from any data found here. 
+
