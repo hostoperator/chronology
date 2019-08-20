@@ -1,6 +1,8 @@
 # chronology
 The Master Chronology Archive of Host Operator
 
+![HO Profile Image](https://github.com/hostoperator/chronology/blob/master/ho_profile_image.png)
+
 This archive is the complete and on going works of Host Operator. 
 
 WHO?
